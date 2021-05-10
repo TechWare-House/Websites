@@ -18,8 +18,6 @@
 - https://www.squarenine.pk/
 - http://voiceofislam.skylite.com/index.php/login
 - https://maheentex.com/
-git 
-
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
