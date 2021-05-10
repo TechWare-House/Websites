@@ -15,7 +15,17 @@
 - https://www.corporateurdu.com/
 - https://loveandcork.com/
 - https://exetermobilemassage.co.uk/
+- https://www.squarenine.pk/
 -----------------------------------------------------------------
-- shkir
+- http://207.180.236.232/~shakir/bestwebscript/
+- http://207.180.236.232/~shakir/cms-landing-page/
+- http://207.180.236.232/~shakir/cycle-rider/
+- http://207.180.236.232/~shakir/home-anish/
+- http://207.180.236.232/~shakir/island-diaz/
+- http://207.180.236.232/~shakir/market-access-pro/
+- http://207.180.236.232/~shakir/menu-webapp/
+- http://207.180.236.232/~shakir/mssons/
+- http://207.180.236.232/~shakir/plant-website
+- 
 
 
