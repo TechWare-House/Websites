@@ -30,10 +30,6 @@
 - http://207.180.236.232/~shakir/mssons/
 - http://207.180.236.232/~shakir/plant-website
 - http://207.180.236.232/~skylite/pswla/
-- http://207.180.236.232/~shakir/ubaid/client_management/
-- http://207.180.236.232/~shakir/ubaid/maheen-textile
-- http://207.180.236.232/~shakir/ubaid/medical
-- http://207.180.236.232/~shakir/ubaid/visci/
 - http://207.180.236.232/~shakir/bank-of-america/
 - http://207.180.236.232/~shakir/racine/
 - http://207.180.236.232/~shakir/maision-1608/
@@ -44,6 +40,11 @@
 - http://207.180.236.232/~shakir/theme-5/
 - http://207.180.236.232/~shakir/theme-6/
 - http://207.180.236.232/~shakir/bestwebscript/
+------------------------------------------------------------
+- http://207.180.236.232/~shakir/ubaid/client_management/
+- http://207.180.236.232/~shakir/ubaid/maheen-textile
+- http://207.180.236.232/~shakir/ubaid/medical
+- http://207.180.236.232/~shakir/ubaid/visci/
 
 
 
