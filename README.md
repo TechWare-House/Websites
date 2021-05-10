@@ -18,6 +18,7 @@
 - https://www.squarenine.pk/
 - http://voiceofislam.skylite.com/index.php/login
 - https://maheentex.com/
+- https://11thsociety.com/
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
@@ -29,5 +30,18 @@
 - http://207.180.236.232/~shakir/mssons/
 - http://207.180.236.232/~shakir/plant-website
 - http://207.180.236.232/~skylite/pswla/
+- http://207.180.236.232/~shakir/ubaid/client_management/
+- http://207.180.236.232/~shakir/ubaid/maheen-textile
+- http://207.180.236.232/~shakir/ubaid/medical
+- http://207.180.236.232/~shakir/ubaid/visci/
+- http://207.180.236.232/~shakir/bank-of-america/
+- http://207.180.236.232/~shakir/racine/
+- http://207.180.236.232/~shakir/maision-1608/
+- http://207.180.236.232/~shakir/theme-1/
+- http://207.180.236.232/~shakir/theme-2/
+- http://207.180.236.232/~shakir/theme-3/
+- http://207.180.236.232/~shakir/theme-4/
+- http://207.180.236.232/~shakir/theme-5/
+- http://207.180.236.232/~shakir/theme-6/
 
 
