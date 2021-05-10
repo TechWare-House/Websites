@@ -16,6 +16,8 @@
 - https://loveandcork.com/
 - https://exetermobilemassage.co.uk/
 - https://www.squarenine.pk/
+- http://voiceofislam.skylite.com/index.php/login
+
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
@@ -26,5 +28,6 @@
 - http://207.180.236.232/~shakir/menu-webapp/
 - http://207.180.236.232/~shakir/mssons/
 - http://207.180.236.232/~shakir/plant-website
+- http://207.180.236.232/~skylite/pswla/
 
 
