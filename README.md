@@ -18,7 +18,7 @@
 - https://www.squarenine.pk/
 - http://voiceofislam.skylite.com/index.php/login
 - https://maheentex.com/
-- https://11thsociety.com/
+- https://couponsquirrelco.com/
 - https://www.hhfy.org/
 - https://nimsayintl.com/
 -----------------------------------------------------------------
