@@ -23,6 +23,9 @@
 - https://nimsayintl.com/
 - https://planetants-supporter.com/
 - https://li2global.com/
+- https://cwi.com.pk/
+- https://cvwebshop.com/
+- https://trueorators.com/
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
