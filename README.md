@@ -4,6 +4,7 @@
 - https://eversquare.com
 - https://www.nowcompare.com/
 - https://rolloffer.com/
+- http://designuniforms.ca/
 - http://theprepsystem.com/
 - http://alyaqeen.org/
 - https://closinglawyer.ca/
