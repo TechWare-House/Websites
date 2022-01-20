@@ -46,6 +46,9 @@
 - https://knockknockmarketing.co.uk/
 - https://wozali.com/
 - https://ayiticultural.com/
+- https://zoeladieskitchen.com/
+- https://couponsquirrelbusiness.com/
+- https://couponsquirrelsignup.com/
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
