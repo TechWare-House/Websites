@@ -27,6 +27,8 @@
 - http://voiceofislam.skylite.com/index.php/login
 - https://maheentex.com/
 - https://couponsquirrelco.com/
+- https://couponsquirrelbusiness.com/
+- https://couponsquirrelsignup.com/
 - https://www.hhfy.org/
 - https://nimsayintl.com/
 - https://planetants-supporter.com/
@@ -48,8 +50,7 @@
 - https://wozali.com/
 - https://ayiticultural.com/
 - https://zoeladieskitchen.com/
-- https://couponsquirrelbusiness.com/
-- https://couponsquirrelsignup.com/
+- https://greenking.ie/
 -----------------------------------------------------------------
 - http://207.180.236.232/~shakir/bestwebscript/
 - http://207.180.236.232/~shakir/cms-landing-page/
