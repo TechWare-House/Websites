@@ -52,32 +52,6 @@
 - https://zoeladieskitchen.com/
 - https://greenking.ie/
 - http://out-sourc3d.co.uk/
------------------------------------------------------------------
-- http://207.180.236.232/~shakir/bestwebscript/
-- http://207.180.236.232/~shakir/cms-landing-page/
-- http://207.180.236.232/~shakir/cycle-rider/
-- http://207.180.236.232/~shakir/home-anish/
-- http://207.180.236.232/~shakir/island-diaz/
-- http://207.180.236.232/~shakir/market-access-pro/
-- http://207.180.236.232/~shakir/menu-webapp/
-- http://207.180.236.232/~shakir/mssons/
-- http://207.180.236.232/~shakir/plant-website
-- http://207.180.236.232/~skylite/pswla/
-- http://207.180.236.232/~shakir/bank-of-america/
-- http://207.180.236.232/~shakir/racine/
-- http://207.180.236.232/~shakir/maision-1608/
-- http://207.180.236.232/~shakir/theme-1/
-- http://207.180.236.232/~shakir/theme-2/
-- http://207.180.236.232/~shakir/theme-3/
-- http://207.180.236.232/~shakir/theme-4/
-- http://207.180.236.232/~shakir/theme-5/
-- http://207.180.236.232/~shakir/theme-6/
-- http://207.180.236.232/~shakir/bestwebscript/
-------------------------------------------------------------
-- http://207.180.236.232/~shakir/ubaid/client_management/
-- http://207.180.236.232/~shakir/ubaid/maheen-textile
-- http://207.180.236.232/~shakir/ubaid/medical
-- http://207.180.236.232/~shakir/ubaid/visci/
-
+- https://ksmshippingja.com/
 
 
