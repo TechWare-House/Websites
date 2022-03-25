@@ -54,4 +54,5 @@
 - http://out-sourc3d.co.uk/
 - https://ksmshippingja.com/
 - http://dropkrate.com/
+- https://resellgoods.com/
 
