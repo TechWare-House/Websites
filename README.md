@@ -15,7 +15,6 @@
 - http://fdpicecream.com
 - http://estate123.com/
 - http://pizzalife-drabenderhoehe.de/
-- https://planetants-supporter.com/
 - http://gameredix.com/
 - http://latoscana-bielstein.de/
 - https://speedread2xl.com/
