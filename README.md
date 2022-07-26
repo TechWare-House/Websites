@@ -55,5 +55,5 @@
 - https://ksmshippingja.com/
 - http://dropkrate.com/
 - https://resellgoods.com/
-- http://singleblackseniorsnetwork.net/
-
+- http://singleblackseniorsnetwork.net/ 
+- https://al-hadees.com/
