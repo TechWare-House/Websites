@@ -59,3 +59,6 @@
 - http://singleblackseniorsnetwork.net/ 
 - https://al-hadees.com/
 - https://johnjohnhoney.com/
+- https://wreathcenter.com/
+- https://cheesencrunch.com/
+- 
