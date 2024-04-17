@@ -2,7 +2,6 @@
 
 - https://twh360.com
 - https://saleem.pk
-- https://eversquare.com
 - https://www.nowcompare.com/
 - https://rolloffer.com/
 - https://crmbase.io/
@@ -64,6 +63,7 @@
 - https://sentitodire.com
 - https://swiftteamservices.com
 - https://samsartstudio.com/
+- https://eversquare.com
 
 
 
