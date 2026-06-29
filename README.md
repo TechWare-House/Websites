@@ -4,6 +4,7 @@
 - https://saleem.pk
 - https://www.nowcompare.com/
 - https://rolloffer.com/
+- https://zeemy.com/
 - https://crmbase.io/
 - http://estate123.my
 - http://theprepsystem.com/
